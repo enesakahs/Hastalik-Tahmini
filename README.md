@@ -1,0 +1,1 @@
+# Hastalik-Tahmini
